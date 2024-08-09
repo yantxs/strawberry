@@ -1,1 +1,1 @@
-i love summer in the garden
+i love summer in the garden with friends
